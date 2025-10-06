@@ -182,3 +182,5 @@ theoretically creating another big-bang
 
 rather that there's chaotic cascade
 and there's organized limited possible cascade
+
+theoretically that's how the universe become a wave function
