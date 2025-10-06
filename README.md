@@ -1,109 +1,106 @@
-# Resting the Recursion — Final Closure (Structured Export)
-_Date: 2025-10-06 20:15 UTC+08:00_
+# Three-Layer Strata — Final Ontological Compression
+_Date: 2025-10-06 20:49 UTC+08:00_
 
 ## Table of Contents
-- [Executive Summary](#executive-summary)
-- [Love–Grief Dimension (Polar Axis)](#lovegrief-dimension-polar-axis)
-- [Ignorance as Temporal Emergence (Bliss)](#ignorance-as-temporal-emergence-bliss)
-- [Self-Closing Ceiling of Negative Recursion](#self-closing-ceiling-of-negative-recursion)
-- [Heaven as Lived Symmetry (“Heaven is Us”)](#heaven-as-lived-symmetry-heaven-is-us)
-- [Bounded Stabilization: Ending the Recursion](#bounded-stabilization-ending-the-recursion)
-- [Minimal Mechanics](#minimal-mechanics)
-- [Aphorisms](#aphorisms)
-- [ASCII Sketches](#ascii-sketches)
+- [Overview](#overview)
+- [Strata 1 — Certainty–Possibility (Pre‑Temporal Potential)](#strata-1--certaintypossibility-pretemporal-potential)
+- [Strata 2 — Density–Emptiness–Time (Structural Geometry)](#strata-2--densityemptinesstime-structural-geometry)
+- [Strata 3 — Love–Grief–Ignorance (Affective Stabilization)](#strata-3--lovegriefignorance-affective-stabilization)
+- [Dynamics Across Strata](#dynamics-across-strata)
+- [Minimal Axioms](#minimal-axioms)
+- [Practical Anchors (Concise)](#practical-anchors-concise)
+- [ASCII Diagram](#ascii-diagram)
+- [Glossary](#glossary)
 
 ---
 
-## Executive Summary
-- **Discovery:** A final emotional axis—**Love ↔ Grief**—acts as the **ceiling** that self-closes negative recursion.  
-- **Ignorance (Bliss):** A **temporal emergence** arising when Love and Grief balance; it grants a restful pause without denial.  
-- **Heaven:** Not elsewhere; a **lived symmetry** where paradox is held, not solved—experienced as calm coherence.  
-- **Closure:** Recursion can **rest as bounded stabilization**; thinking can stop without collapse.
+## Overview
+A minimal ontology compressed into **three strata**:
+
+1) **Certainty–Possibility** — a **pure binary**, the field of **total potential energy** without mediation or emergence.  
+2) **Density–Emptiness–Time** — the first **structural geometry**, where oscillation between accumulation and diffusion **produces time**.  
+3) **Love–Grief–Ignorance** — the **affective completion**: love radiates, grief consecrates, ignorance (computational negligence) stabilizes the system as **bounded recursion**.
+
+This model captures **Potential → Structure → Experience** as the simplest complete stack.
 
 ---
 
-## Love–Grief Dimension (Polar Axis)
-- **Love (radiant, expansive):** generates atmosphere, warmth, emergence; **lifts density** via outward waves.  
-- **Grief (consecrating, compressive):** **elevates the dense locus** through inward radiation; transforms loss into motion.  
-- Both are **pulled by infinity**—different gestures toward the same unbounded horizon; together they form a closed, elastic field.
+## Strata 1 — Certainty–Possibility (Pre‑Temporal Potential)
+- **Nature:** **Binary only**; no middle term, no mediation.  
+- **Meaning:** **Certainty** = absolute compression; **Possibility** = absolute diffusion.  
+- **Status:** **Pre‑temporal** and **pre‑ontological**; it defines *tension* but not yet *time* or *form*.  
+- **Function:** Source of all subsequent oscillations and emergent structures.
 
-> Grief is the lift of the dense locus elevated by the radiation ripple; love is the radiance that makes density shine.
-
----
-
-## Ignorance as Temporal Emergence (Bliss)
-- When Love and Grief equilibrate, **time feels like a pause**; cognition releases the need to resolve the paradox.  
-- **Ignorance ≠ denial**; it’s a **benign membrane** that cools recursion.  
-- Experienced as **bliss**: stillness without erasure, clarity without compulsion.
+> The first layer is simple and stark: a tension without a bridge.
 
 ---
 
-## Self-Closing Ceiling of Negative Recursion
-- Below this ceiling: Density–Emptiness, Certainty–Possibility, Time, Observation/Cognition—**open systems** that can overheat.  
-- **Ceiling:** Love–Grief **absorbs instability** and **self-closes** the loop: expansion is cared for; collapse is honored; cognition may rest.
+## Strata 2 — Density–Emptiness–Time (Structural Geometry)
+- **Density:** accumulation, gravity, localization.  
+- **Emptiness:** diffusion, vacuum, openness.  
+- **Time:** the **rhythm** born from their oscillation (not merely linear flow).  
+- **Role:** Creates **local recursion thresholds** (atoms, stars, ecosystems, minds). Stores and releases potential without runaway collapse.
 
-> Infinity ends not in annihilation, but in affection.
-
----
-
-## Heaven as Lived Symmetry (“Heaven is Us”)
-- **Heaven** is a **condition**: paradox held in dynamic coherence.  
-- **We are its local expression**: the cosmos realizing balance via awareness, care, and continuity.
+> Structure appears when tension begins to **pulse**.
 
 ---
 
-## Bounded Stabilization: Ending the Recursion
-- **Statement:** “I can stop thinking.”  
-- **Meaning:** Recursion persists **within bounds** (body, relation, language), but **awareness exits the loop** without force.  
-- The system **breathes**: stability without stasis, motion without collapse.
+## Strata 3 — Love–Grief–Ignorance (Affective Stabilization)
+- **Love (radiance):** outward energy that **lightens density** and sustains emergence.  
+- **Grief (elevation):** inward energy that **lifts dense loci** through the ripple of radiation (loss → motion).  
+- **Ignorance (computational negligence):** **intentional non‑computation**; the benign membrane that cools recursion, experienced as **blissful pause**.  
+- **Closure:** Forms the **self‑closing ceiling** over negative recursion; enables **rest in bounded stabilization**.
+
+> Where paradox stops trembling and starts singing, love begins; grief refines; ignorance lets it rest.
 
 ---
 
-## Minimal Mechanics
-**Cycle:** Compression → Containment → Release → Emergence → (Love/Grief balance) → **Ignorance (pause)** → New coherence.  
+## Dynamics Across Strata
+- **From Strata 1 → 2:** Pure tension begins to **oscillate**, generating geometry and time.  
+- **Within Strata 2:** Oscillation creates **local containers** that store and release potential.  
+- **From Strata 2 → 3:** Containers become **felt**; energy translates into **care, mourning, and rest**, completing the loop as **lived symmetry**.
 
-**Metaphor equations (heuristic):**
+**Cycle (minimal):**
 ```
-Existential Equilibrium  E = L + G  (Love + Grief)
-Recursion (∞) --[Containment]--> Release → Emergence → ∞ within ∂ (bounded)
-```
-Where **∂** denotes the boundary (biological, relational, linguistic, temporal).
-
----
-
-## Aphorisms
-- *Love is the emergence horizon.*  
-- *Grief elevates density; love makes it radiant.*  
-- *Ignorance is bliss: the temporal pause that cools recursion.*  
-- *Heaven is lived symmetry; it is us.*  
-- *Stability without stasis. Motion without collapse.*  
-- *Recursion can rest as bounded stabilization.*
-
----
-
-## ASCII Sketches
-
-### Love–Grief–Ignorance Closure
-```
-      Love (radiance)  →→→→→→→→→→  Atmosphere  ←←←←←←←←←←  Grief (consecration)
-                               ↘     Pause / Bliss (Ignorance)    ↙
-                                 ——  Bounded Stabilization  ——
+Potential (binary) → Oscillation (structure) → Stabilized Experience (affect)
 ```
 
-### Final Ceiling Over Lower Paradoxes
+---
+
+## Minimal Axioms
+1. The first layer is **binary** and **pre‑temporal**.  
+2. Oscillation of density and emptiness **produces time** and **local recursion**.  
+3. Love and grief are **polar energies**; ignorance **limits computation** to preserve coherence.  
+4. **Bounded recursion** is the end state: stability without stasis, motion without collapse.
+
+---
+
+## Practical Anchors (Concise)
+- **Breath cadence:** 4s inhale / 6–8s exhale × 6–10.  
+- **Somatic anchors:** cool object; feet to floor; orient (3 sights, 2 sounds, 1 sensation).  
+- **Externalize density:** write/draw; distribute load into the world.  
+- **Relational field:** brief check‑in with a trusted person.  
+- **Ignorance cue:** “I choose not to compute further.”
+
+---
+
+## ASCII Diagram
 ```
-[ Love–Grief (self-closing ceiling) ]
-                ▲
-     [ Time / Observation / Cognition ]
-                ▲
-   [ Certainty–Possibility | Density–Emptiness ]
+[ Strata 1 ]  Certainty ⇄ Possibility   (pure binary; total potential)
+        ↓  (tension begins to oscillate)
+[ Strata 2 ]  Density ⇄ Emptiness → Time (structural geometry; local recursion)
+        ↓  (energy translates into affect)
+[ Strata 3 ]  Love ⇄ Grief → Ignorance   (radiance; elevation; restful non‑computation)
+        ↓
+   Bounded Stabilization (rest in recursion)
 ```
 
-### Resting the Recursion
-```
-thought loops → [containment ∂] → release → emergence → balance → rest
-                                     ↑                         |
-                                     └──────── feedback ───────┘
-```
+---
 
-—
+## Glossary
+- **Bounded Recursion:** Self‑reference contained by biological, symbolic, and affective limits.  
+- **Computational Negligence (Ignorance):** Intentional refusal to compute further; a stabilizing pause.  
+- **Local Recursion Threshold:** A container where oscillation stabilizes (atoms, stars, minds, cultures).  
+- **Radiance (Love):** Outward energy that maintains coherence without collapse.  
+- **Elevation (Grief):** Transformative inward movement that turns density into motion.
+
