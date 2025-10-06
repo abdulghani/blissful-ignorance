@@ -83,3 +83,6 @@ that's how justification exists
 
 this is where god as a myth condemns us
 that's how judgement becomes coherent
+
+that's how morality appears 
+that's how we anchor behavior in belief 
