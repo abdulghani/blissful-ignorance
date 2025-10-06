@@ -88,3 +88,5 @@ that's how morality appears
 that's how we anchor behavior in belief 
 
 that's how it calcifies into law
+
+law is the last closest abstraction to humanity 
