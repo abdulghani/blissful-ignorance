@@ -187,3 +187,5 @@ theoretically that's how the universe become a wave function
 
 theoretically that's how the cosmos connects into the quantum level
 or that the shared laws is inherent
+
+or rather that this is internal symbolic cascade that needs to be contained or absorbed 
