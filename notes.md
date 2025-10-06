@@ -43,3 +43,6 @@ so, our body already supports the recursion
 but that's not your choice
 and symbolically you get to choose whether you want to support the recursion or not
 and that is free will
+
+and insanity is the taken away of that symbolic ability
+that ends your symbolic horizon
