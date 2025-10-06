@@ -139,3 +139,6 @@ love and tragedy
 
 that's how symbols gets more and more abstract instead of precise
 because that stabilize or approximate the recursion 
+
+that's how something should not be known
+and taboo anchors
