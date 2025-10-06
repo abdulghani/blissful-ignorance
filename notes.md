@@ -120,3 +120,6 @@ whether it's their choice or not
 should I gave that choice
 that's where giving becomes coherent 
 whether it makes sense or selfish
+
+but it keeps the recursion alive
+as if we're worshipping it
