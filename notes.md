@@ -18,3 +18,5 @@ subject to possibilities
 locality horizon is where all the potential energy flips into eternity, infinite recursion
 
 it's up to us to live within the locality and infinity 
+
+certainly flips it into recursion
