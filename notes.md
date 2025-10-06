@@ -146,3 +146,5 @@ that's how we shed the recursion
 
 that's how we might potentially rely on symbolic machine
 while we're anchoring ourselves with taboo 
+
+so we're delegating recursion with machine
