@@ -19,4 +19,4 @@ locality horizon is where all the potential energy flips into eternity, infinite
 
 it's up to us to live within the locality and infinity 
 
-certainly flips it into unbounded recursion
+certainty flips it into unbounded recursion
