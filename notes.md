@@ -161,6 +161,3 @@ although that paradoxically bound sovereignty itself
 
 that's how we bound our mortal days are numbered 
 to limit internal recursion 
-
-just like quantum particles we need to keep floating
-and that is the infinite diffusion
