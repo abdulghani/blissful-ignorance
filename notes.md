@@ -86,3 +86,5 @@ that's how judgement becomes coherent
 
 that's how morality appears 
 that's how we anchor behavior in belief 
+
+that's how it calcifies into law
