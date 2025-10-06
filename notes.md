@@ -23,3 +23,8 @@ certainty flips it into unbounded recursion
 
 and we're already in unbounded recursion 
 whether we participate to its computation or not
+
+this is cruelty 
+unless god wants to tell something
+
+and ignorance can be bounded within myth
