@@ -31,3 +31,5 @@ and ignorance can be bounded within myth
 
 and that can be anything 
 it's not prescribed to dogma
+
+certainty is death in our mortal horizon
