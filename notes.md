@@ -158,3 +158,6 @@ while we're living in our bounded horizon
 that's how we anchors ourselves with sin collectively 
 so that we're keep living
 although that paradoxically bound sovereignty itself 
+
+that's how we bound our mortal days are numbered 
+to limit internal recursion 
