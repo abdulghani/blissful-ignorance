@@ -46,3 +46,6 @@ and that is free will
 
 and insanity is the taken away of that symbolic ability
 that ends your symbolic horizon
+
+and god is mythically coherent in that sense
+whether we choose to believe or not
