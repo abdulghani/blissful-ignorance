@@ -112,3 +112,5 @@ and that is futurism
 
 that's where the first statement appears
 and burden floating to our children
+
+that's where I accepts my stasis
