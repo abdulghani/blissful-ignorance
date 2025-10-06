@@ -78,4 +78,5 @@ and that's how mental health floats
 
 that's how our intelligence circuit breaks
 
-that's how judgement floats
+that's how judgement floats.
+that's how justification exists
