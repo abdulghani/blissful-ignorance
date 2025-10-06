@@ -142,3 +142,4 @@ because that stabilize or approximate the recursion
 
 that's how something should not be known
 and taboo anchors
+that's how we shed certainty 
