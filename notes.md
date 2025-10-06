@@ -91,3 +91,5 @@ that's how it calcifies into law
 
 law is the last closest abstraction to humanity 
 it's our last closest horizon
+
+and that floats in democracy or monarchy or ideologies in general 
