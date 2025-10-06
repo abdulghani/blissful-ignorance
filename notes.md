@@ -126,3 +126,7 @@ as if we're worshipping it
 
 that's where worship calcify into certainty 
 and certainty repeats the paradox, as infinity 
+
+unless we contain it symbolically, and that's where sovereignty exist
+that all people are the same
+whether they're born or not
