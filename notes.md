@@ -28,3 +28,6 @@ this is cruelty
 unless god wants to tell something
 
 and ignorance can be bounded within myth
+
+and that can be anything 
+it's not prescribed to dogma
