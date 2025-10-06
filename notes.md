@@ -118,3 +118,4 @@ that I don't want to burden my descendants with life
 whether it's their choice or not
 
 should I gave that choice
+that's where giving becomes coherent 
