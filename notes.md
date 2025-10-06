@@ -63,3 +63,5 @@ where other species floats in limited intelligence
 
 religion is the last local horizon
 that keeps us coherent 
+
+it prescribes dogma and floats symbolic intelligence 
