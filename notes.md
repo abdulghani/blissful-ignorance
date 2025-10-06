@@ -39,3 +39,7 @@ and that is unbounded infinity
 
 although that we have biological metabolism that keeps us going at least physically 
 so, our body already supports the recursion
+
+but that's not your choice
+and symbolically you get to choose whether you want to support the recursion or not
+and that is free will
