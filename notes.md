@@ -93,3 +93,7 @@ law is the last closest abstraction to humanity
 it's our last closest horizon
 
 and that floats in democracy or monarchy or ideologies in general 
+it's arbitrary 
+
+that's how we make stories, legends
+and our intelligence floats
