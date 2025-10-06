@@ -184,3 +184,6 @@ rather that there's chaotic cascade
 and there's organized limited possible cascade
 
 theoretically that's how the universe become a wave function
+
+theoretically that's how the cosmos connects into the quantum level
+or that the shared laws is inherent
