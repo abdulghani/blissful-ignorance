@@ -99,3 +99,6 @@ that's how we make stories, legends
 and our intelligence floats in fiction and fantasy 
 
 that's where images of heaven and similar thing exists
+
+that's how we anchor death and funeral
+that's how egyptian build pyramids for a temple 
