@@ -133,3 +133,6 @@ whether they're born or not
 
 and where every living things exist
 that's where potentially expansion explodes, subject to possibility 
+
+creates pain and death
+love and tragedy
