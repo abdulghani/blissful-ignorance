@@ -178,3 +178,4 @@ every little variation, which is inherent of possibilities
 cascade into the divine certainty
 
 and possibilities will release its infinite potential energy
+theoretically creating another big-bang
