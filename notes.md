@@ -123,3 +123,6 @@ whether it makes sense or selfish
 
 but it keeps the recursion alive
 as if we're worshipping it
+
+that's where worship calcify into certainty 
+and certainty repeats the paradox, as infinity 
