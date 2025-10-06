@@ -49,3 +49,5 @@ that ends your symbolic horizon
 
 and god is mythically coherent in that sense
 whether we choose to believe or not
+
+and that is where we anchor community, religion and civilization 
