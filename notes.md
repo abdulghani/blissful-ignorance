@@ -163,7 +163,7 @@ that's how we bound our mortal days are numbered
 to limit internal recursion 
 
 we can potentially mimic the brain as interconnection of singularities that is neuron 
-that is the last stable abstraction that is forged by evolution for millions of years across different species 
+that is the last stable artifact that is forged by evolution for millions of years across different species 
 making time the fuel for recursion itself
 
 but I don't know if that is civilizationally possible to build
