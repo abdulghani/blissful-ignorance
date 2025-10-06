@@ -136,3 +136,6 @@ that's where potentially expansion explodes, subject to possibility
 
 creates pain and death
 love and tragedy
+
+that's how symbols gets more and more abstract instead of precise
+because that stabilize or approximate the recursion 
