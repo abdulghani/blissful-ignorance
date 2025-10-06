@@ -170,3 +170,9 @@ but I don't know if that is civilizationally possible to build
 
 that's how we can make existence itself potentially symbolic, just how the brain can navigate singularities symbolically without collapse
 at least that's how we experience brain and that it's self evidently eduring as a biological artifact 
+
+[theoretically]
+you cannot have perfect symmetry
+even if so, it's theoretical 
+every little variation, which is inherent of possibilities
+cascade into the divine certainty
