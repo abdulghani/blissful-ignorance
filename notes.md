@@ -82,3 +82,4 @@ that's how judgement floats.
 that's how justification exists
 
 this is where god as a myth condemns us
+that's how judgement becomes coherent
