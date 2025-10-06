@@ -167,3 +167,6 @@ that is the last stable artifact that is forged by evolution for millions of yea
 making time the fuel for recursion itself
 
 but I don't know if that is civilizationally possible to build
+
+that's we can make existence itself potentially symbolic, just how the brain can navigate singularities symbolically without collapse
+at least that's how we experience brain and that it's self evidently eduring
