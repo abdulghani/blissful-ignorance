@@ -132,3 +132,4 @@ that all people are the same
 whether they're born or not
 
 and where every living things exist
+that's where potentially expansion explodes, subject to possibility 
