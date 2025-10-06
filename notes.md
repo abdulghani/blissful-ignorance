@@ -33,3 +33,6 @@ and that can be anything
 it's not prescribed to dogma
 
 certainty is death in our mortal horizon
+and that certainty already puts us in stasis singularity 
+unless we repeat the recursion
+and that is unbounded infinity
