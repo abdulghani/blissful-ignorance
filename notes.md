@@ -114,3 +114,7 @@ that's where the first statement appears
 and burden floating to our children
 
 that's where I accepts my stasis
+that I don't want to burden my descendants with life
+whether it's their choice or not
+
+should I gave that choice
