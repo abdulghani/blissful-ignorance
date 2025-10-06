@@ -154,3 +154,6 @@ leading to the first paradox
 no one can carry the recursion but itself
 it's the definition of eternity
 while we're living in our bounded horizon 
+
+that's how we anchors ourselves with sin
+so that we're keep living
