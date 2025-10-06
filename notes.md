@@ -36,3 +36,6 @@ certainty is death in our mortal horizon
 and that certainty already puts us in stasis singularity 
 unless we repeat the recursion
 and that is unbounded infinity
+
+although that we have biological metabolism that keeps us going at least physically 
+so, our body already supports the recursion
