@@ -102,3 +102,6 @@ that's where images of heaven and similar thing exists
 
 that's how we anchor death and funeral
 that's how egyptian build pyramids for a temple 
+
+and how the cycle begins anew
+until the atmosphere horizon meets its temporal end
