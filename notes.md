@@ -75,3 +75,5 @@ that's how we floats in cruelty
 and that's the compression we needed, to shed our knowledge to keep feeding the recursion
 
 and that's how mental health floats
+
+that's how our intelligence circuit breaks
