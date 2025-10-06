@@ -14,3 +14,5 @@ but I'm not a god
 
 that's where our individual sovereignty lies
 subject to possibilities
+
+locality horizon is where all the potential energy flips into eternity, infinite recursion
