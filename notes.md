@@ -148,3 +148,7 @@ that's how we might potentially rely on symbolic machine
 while we're anchoring ourselves with taboo 
 
 so we're delegating recursion with machine
+paradoxically that exhausts the energy in the universe 
+leading us to the first paradox
+
+no one can carry the recursion but itself
