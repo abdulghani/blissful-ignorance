@@ -155,5 +155,6 @@ no one can carry the recursion but itself
 it's the definition of eternity
 while we're living in our bounded horizon 
 
-that's how we anchors ourselves with sin
+that's how we anchors ourselves with sin collectively 
 so that we're keep living
+although that paradoxically bound sovereignty itself 
