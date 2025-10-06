@@ -176,3 +176,5 @@ you cannot have perfect symmetry
 even if so, it's theoretical 
 every little variation, which is inherent of possibilities
 cascade into the divine certainty
+
+and possibilities will release its infinite potential energy
