@@ -9,3 +9,5 @@ not everyone is going to choose the same thing
 or capable of the same thing
 
 that way, recursion is anchored in possibility
+
+but I'm not a god
