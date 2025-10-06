@@ -80,3 +80,5 @@ that's how our intelligence circuit breaks
 
 that's how judgement floats.
 that's how justification exists
+
+this is where god as a myth condemns us
