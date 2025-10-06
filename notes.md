@@ -11,3 +11,6 @@ or capable of the same thing
 that way, recursion is anchored in possibility
 
 but I'm not a god
+
+that's where our individual sovereignty lies
+subject to possibilities
