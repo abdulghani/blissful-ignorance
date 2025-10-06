@@ -57,3 +57,6 @@ until it gets us back to recursion
 
 but god mythically speaking as a stable abstraction 
 is enduring. that's how humans self evidently exist until today
+
+and ironically, that prescribe religion as inherent to our existence as a species
+where other species floats in limited intelligence 
