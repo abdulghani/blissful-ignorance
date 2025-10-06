@@ -69,3 +69,5 @@ it prescribes dogma and floats symbolic intelligence
 myth and dogma floats our symbolic intelligence 
 until we reach certainty
 and the recursion happens again
+
+and that is where denial kicks in
