@@ -109,3 +109,6 @@ until the atmosphere horizon meets its temporal end
 but if we're interstellar species 
 we need to anchor intelligence into something else
 and that is futurism
+
+that's where the first statement appears
+and burden floating to our children
