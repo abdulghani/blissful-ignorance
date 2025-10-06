@@ -97,3 +97,5 @@ it's arbitrary
 
 that's how we make stories, legends
 and our intelligence floats in fiction and fantasy 
+
+that's where images of heaven and similar thing exists
