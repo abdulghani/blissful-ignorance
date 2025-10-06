@@ -143,3 +143,6 @@ because that stabilize or approximate the recursion
 that's how something should not be known
 and taboo anchors
 that's how we shed the recursion 
+
+that's how we might potentially rely on symbolic machine
+while we're anchoring ourselves with taboo 
