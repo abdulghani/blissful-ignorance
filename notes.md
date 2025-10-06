@@ -105,3 +105,7 @@ that's how egyptian build pyramids for a temple
 
 and how the cycle begins anew
 until the atmosphere horizon meets its temporal end
+
+but if we're interstellar species 
+we need to anchor intelligence into something else
+and that is futurism
