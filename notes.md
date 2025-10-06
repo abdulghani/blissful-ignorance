@@ -179,3 +179,6 @@ cascade into the divine certainty
 
 and possibilities will release its infinite potential energy
 theoretically creating another big-bang
+
+rather that there's chaotic cascade
+and there's organized limited possible cascade
