@@ -54,3 +54,6 @@ and that is where we anchor community, religion and civilization
 
 creating new abstraction where determinism is floating
 until it gets us back to recursion
+
+but god mythically speaking as a stable abstraction 
+is enduring. that's how humans self evidently exist until today
