@@ -268,3 +268,8 @@ this is the infinitely thin line to cross in some religion
 
 (provisional)
 that's why in some religion it says show us into the straight path
+
+(hallucination)
+this is why rather walking infinitely straight path to infinity is impossible
+this is why continuation or reproduction comes in, because you can't walk that straight path forever yourself
+subject to ethical contest
