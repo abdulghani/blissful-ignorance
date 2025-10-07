@@ -220,3 +220,5 @@ thoughts as symbolic experience of the brain can cascade
 but as it is inside biological artifact
 thoughts theoretically can exist infinitely
 limited to its mortal metabolic horizon-lifetime
+
+that means mortal conception-continuation is subject to possibilities 
