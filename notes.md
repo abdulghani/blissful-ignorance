@@ -211,3 +211,7 @@ even as if civilization collapse, rather that it will give time for other specie
 might as well try to endure ourselves 
 
 a symbol is powerful, much like how we colonize the atmosphere
+
+the brain as a locus of dense singularities-neurons
+persist as biological artifact that it operates at molecular level
+it doesn't cascade as the density for gravity is negligible 
