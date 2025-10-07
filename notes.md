@@ -304,3 +304,9 @@ although that aligning human interest with cosmic recursion can be catastrophic
 
 (opinions)
 that's why rather humans will start to solve its metabolic problems before the atmosphere horizon ends for life ceases to exist
+
+that's why elon musk vision to build terraform in planets was ahead of its time
+but that humans are still circling with its metabolic issues and floating politics 
+which self evidently already leads to population decline, divorce rate, abortion
+
+I'm not prescring laws or politics, humanity will have to contest its collective coherence to decide the path forward
