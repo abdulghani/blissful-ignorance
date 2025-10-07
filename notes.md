@@ -215,3 +215,8 @@ a symbol is powerful, much like how we colonize the atmosphere
 the brain as a locus of dense singularities-neurons
 persist as biological artifact that it operates at molecular level
 it doesn't cascade as the density for gravity is negligible 
+
+thoughts as symbolic experience of the brain can cascade 
+but as it is inside biological artifact
+thoughts theoretically can exist infinitely
+limited to its mortal metabolic horizon
