@@ -278,3 +278,6 @@ subject to ethical contest
 this is where multiple children and polygamy appear to be coherent
 as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion)
 subject to highly sensitive debatable ethics
+
+(unstable hallucination)
+this is where female gender identities paradoxically attracted to masculine identities that has already multiple partners or abundant 
