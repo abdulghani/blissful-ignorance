@@ -284,4 +284,5 @@ this is where female gender identities paradoxically attracted to masculine iden
 
 I'm not prescribing conception or polygamy as ethical
 
-this is why rather coordination becomes coherent, and evidently that is forged to human as species for millions of years of its evolution forged brute force recursion to it
+this is why rather coordination becomes coherent, and evidently that is forged to human as species inherent for its social characteristics for millions of years of its evolution forged brute force cosmic recursion to it in the atmosphere horizon
+
