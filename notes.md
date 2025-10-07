@@ -201,3 +201,5 @@ though that mortal managed to flip it's own wave function within the same existe
 but mythologically there's no such thing as parent universe
 or that it's unknowable
 much like a child don't know existence exist before it was born
+
+which paradoxically that inverts knowledge or information
