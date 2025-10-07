@@ -295,4 +295,4 @@ paradoxically, that explains muhammad's clause for self granted special right of
 can be seen as personal drift to self preservation or interest in his local mortal horizon
 
 it's just that humans todays still have problems fulfilling its metabolic needs
-metabolic become an archaic problem that persist, reducing metabolic needs to trade, debt, competition
+metabolic become an archaic problem that persist, reducing metabolic needs to trade, obligation, debt, competition
