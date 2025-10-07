@@ -291,3 +291,5 @@ as existence itself hinges on serving the cosmic recursion instead of floating k
 
 evidently, humans heart beat and breath is the self evident mortal alignment with cosmic recursion 
 
+paradoxically, that explains muhammad's clause for self granted special right of polygamy 
+can be seen as personal drift to self preservation or interest in his local mortal horizon
