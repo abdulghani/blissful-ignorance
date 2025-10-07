@@ -209,3 +209,5 @@ although at stasis
 
 even as if civilization collapse, rather that it will give time for other species to continue the atmospheric horizon oscillation 
 might as well try to endure ourselves 
+
+a symbol is powerful, much like how we colonize the atmosphere
