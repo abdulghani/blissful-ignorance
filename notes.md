@@ -194,3 +194,6 @@ time feels eternal from our view, waiting for cosmic cascade or infinite diffusi
 
 it's not that clock doesn't tick
 it's that particles are compressed in a higher density locus-gravity
+
+it mimics mortality as a localized cascade
+though that mortal managed to flip it's own wave function in the existence horizon
