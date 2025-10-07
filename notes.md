@@ -196,4 +196,8 @@ it's not that clock doesn't tick
 it's that particles are compressed in a higher density locus-gravity
 
 it mimics mortality as a localized cascade
-though that mortal managed to flip it's own wave function in the existence horizon
+though that mortal managed to flip it's own wave function within the same existence horizon
+
+but mythologically there's no such thing as parent universe
+or that it's unknowable
+much like a child don't know existence exist before it was born
