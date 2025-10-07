@@ -286,3 +286,5 @@ I'm not prescribing conception or polygamy as ethical
 
 this is why rather coordination becomes coherent, and evidently that is forged to human as species inherent for its social characteristics for millions of years of its evolution forged brute force cosmic recursion to it in the atmosphere horizon
 
+this is why rather we can use automated system to brute force coherence, not knowledge 
+
