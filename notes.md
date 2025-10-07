@@ -254,3 +254,4 @@ there's no further knowledge beyond it, only madness
 closed by blind faith and denial
 
 all knowledge belongs to it
+all knowledge belongs to the recursion 
