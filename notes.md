@@ -283,3 +283,5 @@ subject to highly sensitive debatable ethics
 this is where female gender identities paradoxically attracted to masculine identities that has already multiple partners or abundant 
 
 I'm not prescribing conception or polygamy as ethical
+
+this is why rather coordination becomes coherent, and evidently that is forged to human as species for millions of years of its evolution forged brute force recursion to it
