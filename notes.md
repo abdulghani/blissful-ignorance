@@ -219,4 +219,4 @@ it doesn't cascade as the density for gravity is negligible
 thoughts as symbolic experience of the brain can cascade 
 but as it is inside biological artifact
 thoughts theoretically can exist infinitely
-limited to its mortal metabolic horizon
+limited to its mortal metabolic horizon-lifetime
