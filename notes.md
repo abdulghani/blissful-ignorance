@@ -233,3 +233,4 @@ describing that thoughts itself can be recognized as mortal
 so infinity as the constant pull between paradox as a recursion can be recognized as mortal
 
 this in itself gave births to mysteries as the unknowable horizon-abstract
+pulling away itself from certainty to possibility in abstract dimension
