@@ -206,3 +206,6 @@ which paradoxically that inverts knowledge or information
 
 enduring, much like a black hole still exist within the same existence horizon
 although at stasis
+
+even as if civilization collapse, rather that it will give time for other species to continue the atmospheric horizon oscillation 
+might as well try to endure ourselves 
