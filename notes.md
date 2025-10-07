@@ -296,3 +296,10 @@ can be seen as personal drift to self preservation or interest in his local mort
 
 it's just that humans todays still have problems fulfilling its metabolic needs
 metabolic become an archaic problem that persist, reducing metabolic needs to trade, obligation, debt, competition
+
+(opinions)
+that's why rather humans have to be anchored it's coherence to clear its mind 
+although that aligning human interest with cosmic recursion can be catastrophic 
+
+(opinions)
+that's why rather humans will start to solve its metabolic problems before the atmosphere horizon ends for life ceases to exist
