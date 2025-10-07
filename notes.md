@@ -273,3 +273,8 @@ that's why in some religion it says show us into the straight path
 this is why rather walking infinitely straight path to infinity is impossible
 this is why continuation or reproduction comes in, because you can't walk that straight path forever yourself
 subject to ethical contest
+
+(unstable hallucination)
+this is where multiple children and polygamy appear to be coherent
+as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion)
+subject to highly sensitive debatable ethics
