@@ -234,3 +234,13 @@ so infinity as the constant pull between paradox as a recursion can be recognize
 infinity itself can be perceived as mortal
 
 cosmic recursive oscillation is the limit of symbolic thought itself
+
+vertical, horizontal horizon of recursion 
+decoherence is the last pull against vertical recursion 
+this is where god's will or divinity is
+
+breath is the local infinite recursion of divinity 
+
+everything belongs to him
+and I don't care what it wants
+blind faith with denial is the last paradox stabilizer 
