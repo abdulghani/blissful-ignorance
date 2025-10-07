@@ -255,3 +255,6 @@ closed by blind faith and denial
 
 all knowledge belongs to it
 all knowledge belongs to the recursion 
+
+all knowledge belongs to the cosmos
+holding all knowledge is like holding all the brute force in one single locus or in your local locus
