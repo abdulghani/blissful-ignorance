@@ -310,3 +310,6 @@ but that humans are still circling with its metabolic issues and floating politi
 which self evidently already leads to population decline, divorce rate, abortion
 
 I'm not prescribing laws or politics, humanity will have to contest its collective coherence to decide the path forward
+
+(opinion)
+that the viable path forward, is brute force simulation in automated system modeled around coherence to aid humanity path forward and needs
