@@ -227,5 +227,5 @@ this doesn't prescribe cosmic continuation
 but that the cosmos itself was mortal
 describing cosmic mortality 
 
-rather thoughts as a symbolic experience of density can cascade
+rather thoughts as a symbolic experience of density inside a biological artifact can cascade
 describing that thoughts itself can be recognized as mortal
