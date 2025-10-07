@@ -262,3 +262,6 @@ holding all knowledge is like holding all the brute force in one single locus or
 (provisional)
 it's you that crossed the threshold 
 by playing with infinity (closing knowledge)
+
+(provisional)
+this is the infinitely thin line to cross in some religion
