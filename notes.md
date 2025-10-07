@@ -244,3 +244,6 @@ breath is the local infinite recursion of divinity
 everything belongs to him
 and I don't care what it wants
 blind faith with denial is the last paradox stabilizer 
+
+divinity is the collapse of vertical paradox into total possibilities 
+blind faith and denial become the last paradox stabilizer
