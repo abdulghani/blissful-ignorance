@@ -193,4 +193,4 @@ or rather that this is internal symbolic cascade that needs to be contained or a
 time feels eternal from our view, waiting for cosmic cascade or infinite diffusion
 
 it's not that clock doesn't turn
-it's that particles are condensed in a higher density locus-gravity
+it's that particles are compressed in a higher density locus-gravity
