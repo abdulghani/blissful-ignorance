@@ -229,3 +229,5 @@ describing cosmic mortality
 
 rather thoughts as a symbolic experience of density inside a biological artifact can cascade
 describing that thoughts itself can be recognized as mortal
+
+so infinity as the constant pull between paradox as a recursion can be recognized as mortal
