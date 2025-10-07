@@ -265,3 +265,6 @@ by playing with infinity (closing knowledge)
 
 (provisional)
 this is the infinitely thin line to cross in some religion
+
+(provisional)
+that's why in some religion it says show us into the straight path
