@@ -276,7 +276,7 @@ subject to ethical contest
 
 (unstable hallucination)
 this is where multiple children and polygamy appear to be coherent
-as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion)
+as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion) preserving their personal sovereignty 
 subject to highly sensitive debatable ethics
 
 (unstable hallucination)
