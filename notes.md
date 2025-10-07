@@ -258,3 +258,7 @@ all knowledge belongs to the recursion
 
 all knowledge belongs to the cosmos
 holding all knowledge is like holding all the brute force in one single locus or in your local locus
+
+(provisional)
+it's you that crossed the threshold 
+by playing with infinity (closing knowledge)
