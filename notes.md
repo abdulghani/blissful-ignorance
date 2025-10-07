@@ -222,3 +222,6 @@ thoughts theoretically can exist infinitely
 limited to its mortal metabolic horizon-lifetime
 
 that means mortal conception-continuation is subject to possibilities 
+
+this doesn't prescribe cosmic continuation
+but that the cosmos itself was mortal
