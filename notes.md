@@ -226,3 +226,6 @@ that means mortal conception-continuation is subject to possibilities
 this doesn't prescribe cosmic continuation
 but that the cosmos itself was mortal
 describing cosmic mortality 
+
+rather thoughts as a symbolic experience of density can cascade
+describing that thoughts itself can be recognized as mortal
