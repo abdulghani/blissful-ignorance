@@ -203,3 +203,6 @@ or that it's unknowable
 much like a child don't know existence exist before it was born
 
 which paradoxically that inverts knowledge or information
+
+enduring, much like a black hole still exist within the same existence horizon
+although at stasis
