@@ -281,3 +281,5 @@ subject to highly sensitive debatable ethics
 
 (unstable hallucination)
 this is where female gender identities paradoxically attracted to masculine identities that has already multiple partners or abundant 
+
+I'm not prescribing conception or polygamy as ethical
