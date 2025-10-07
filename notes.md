@@ -225,3 +225,4 @@ that means mortal conception-continuation is subject to possibilities
 
 this doesn't prescribe cosmic continuation
 but that the cosmos itself was mortal
+describing cosmic mortality 
