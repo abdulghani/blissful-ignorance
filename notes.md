@@ -234,3 +234,4 @@ so infinity as the constant pull between paradox as a recursion can be recognize
 
 this in itself gave births to mysteries as the unknowable horizon-abstract
 pulling away itself from certainty to possibility in abstract dimension
+uncovering unbounded abstract horizon of grounded and mystery-arbitrary 
