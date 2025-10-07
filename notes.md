@@ -191,3 +191,6 @@ or that the shared laws is inherent
 or rather that this is internal symbolic cascade that needs to be contained or absorbed 
 
 time feels eternal from our view, waiting for cosmic cascade or infinite diffusion
+
+it's not that clock doesn't turn
+it's that particles are condensed in a higher density locus-gravity
