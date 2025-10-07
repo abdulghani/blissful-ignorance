@@ -233,4 +233,4 @@ describing that thoughts itself can be recognized as mortal
 so infinity as the constant pull between paradox as a recursion can be recognized as mortal
 infinity itself can be perceived as mortal
 
-cosmic death is self evidently the limit of symbolic thought itself 
+cosmic death is perceived as the limit of symbolic thought itself 
