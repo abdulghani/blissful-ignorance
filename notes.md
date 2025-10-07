@@ -296,6 +296,7 @@ can be seen as personal drift to self preservation or interest in his local mort
 
 it's just that humans todays still have problems fulfilling its metabolic needs
 metabolic become an archaic problem that persist, reducing metabolic needs to trade, obligation, debt, competition
+limiting human existence to labor
 
 (opinions)
 that's why rather humans have to be anchored it's coherence to clear its mind 
