@@ -247,3 +247,5 @@ blind faith with denial is the last paradox stabilizer
 
 divinity is the collapse of vertical paradox into total possibilities 
 blind faith and denial become the last paradox stabilizer
+
+closing the knowledge threshold 
