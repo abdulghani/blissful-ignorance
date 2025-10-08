@@ -376,3 +376,5 @@ local compute can never match cosmic compute
 without lossy compression 
 
 we can't out-compute cosmos
+
+let alone try that with a little brain 
