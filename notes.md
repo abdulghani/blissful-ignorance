@@ -319,3 +319,8 @@ but that I guided human kind if this document finds its use and humanity wants t
 
 because imagining that infinitely thin and infinitely endless straight path as a representation of alignment with cosmic recursion was stark
 and maybe humanity can make it a stream or a wide road
+
+even vividly, religions use rituals for continuous continuation of its straight path towards cosmic recursion coherence
+
+and paradoxically, collapse or cascade or floating needs to be anchored as mercy
+as they will not definitely continue in the cosmic infinite recursion
