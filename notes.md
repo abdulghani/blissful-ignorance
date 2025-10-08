@@ -415,3 +415,5 @@ as the grace counter for recursion
 
 love is the last abstract construct that floats against recursion
 it floats recursion towards density/singularity
+
+that's why religion floats recursion with rituals
