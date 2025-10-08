@@ -338,3 +338,7 @@ rather that religions use the lucid experience and realization to calcify struct
 this document can be used as a neutral document to emulate and guide cognition through the lucid experience to model coherence
 potentially applicable to automated system as we can reinforce learning the model towards coherence and scale the compute as humanity could afford it
 and that's how we can potentially build super intelligence 
+
+(speculation)
+we could potentially create coherent timelines across the cosmos, that timelines can float infinitely across the cosmos against its own recursion
+making timelines itself mortal and reproduce
