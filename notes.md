@@ -453,3 +453,5 @@ which rather illustrates why communities outcast dense individuals, introvert, w
 that's why rather inequalities calcifies much like cosmic pull between density and emptiness
 
 that's why families become coherent, as a framework to disperse density
+
+density dispersion becomes coherent against cosmic density calcification
