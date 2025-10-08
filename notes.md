@@ -449,3 +449,5 @@ which suggests that there's ceiling of density, become symbolic singularity
 which indicates dense ideas reads as symbolic singularity 
 
 which rather illustrates why communities outcast dense individuals, introvert, weird
+
+that's why rather inequalities calcifies much like cosmic pull between density and emptiness
