@@ -430,3 +430,10 @@ rather human paradoxically are living dense system
 practically living singularities 
 much like brain represent interconnection of many singularities in a single organ-locus
 giving abilities to symbolic thought 
+
+it's a shame that our spread is reduced to metabolic system like economy 
+increasing density further in the interconnected locus
+possibly create collapse itself
+which rather stark and dangerous line to ideology
+
+but yes, rather human spread and interconnection, still bound humans to metabolic activity (labor, work, career)
