@@ -327,3 +327,9 @@ as they will not definitely continue in the cosmic infinite recursion
 
 that's why monotheism is rather stark
 it symbolize cosmic infinite recursion as all powerful (primordial infinite recursion) all knowing (absurdly long ongoing brute force recursion for existence)
+
+that's why rather images of heaven and hell are used as an interpretive anchor towards this cosmic recursion
+although that embeds dogma and prescribe values that's not necessarily relevant or support coherence
+
+(opinions)
+that's how images like multiverse or multiple timelines can exist as existence of multiple coherent stream as carriers of civilization across the cosmos
