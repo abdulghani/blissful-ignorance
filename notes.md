@@ -400,3 +400,5 @@ it's not thought
 
 every beat ends in density
 feeding life itself into a singularity 
+
+unless we disperse thoughts to perception and abstract creation
