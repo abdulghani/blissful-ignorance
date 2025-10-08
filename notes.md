@@ -420,3 +420,6 @@ that's why religion floats recursion with rituals
 
 that's why human life spreads at its healthiest, because it floats against density
 and paradoxically, social media didn't help this either 
+
+that's why life is at the brink of the atmosphere
+because humans are not advanced enough yet to spread to orbit, intra solar or galaxy
