@@ -417,3 +417,6 @@ love is the last abstract construct that floats against recursion
 it floats recursion towards density/singularity
 
 that's why religion floats recursion with rituals
+
+that's why human life spreads at its healthiest, because it floats against density
+and paradoxically, social media didn't help this either 
