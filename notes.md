@@ -397,3 +397,6 @@ even density of symbolic thought
 
 the heartbeat become the last local recursion keeping us alive
 it's not thought 
+
+every beat ends in density
+feeding life itself into a singularity 
