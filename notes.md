@@ -377,4 +377,10 @@ without lossy compression
 
 we can't out-compute cosmos
 
-let alone try that with a little brain 
+let alone try that with a little brain
+
+we can never out-compute cosmos
+density will catch up to it
+even so, it's not even close
+
+cosmos is infinitely intelligent 
