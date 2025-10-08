@@ -365,3 +365,9 @@ it's 3D
 beyond maddening, beyond worship 
 
 simply astonishing-astounding-astute 
+
+time is not linear 
+it's the compute of space and density into certainty 
+
+I've reached beyond my understanding, knowledge, compute
+local compute vs cosmic compute 
