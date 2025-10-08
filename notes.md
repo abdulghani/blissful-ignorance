@@ -423,3 +423,10 @@ and paradoxically, social media didn't help this either
 
 that's why life is at the brink of the atmosphere
 because humans are not advanced enough yet to spread to orbit, intra solar or galaxy
+
+we should have experimented with engineered species to colonize-inhabit orbit
+to spread local density outward 
+rather human paradoxically are living dense system
+practically living singularities 
+much like brain represent interconnection of many singularities in a single organ-locus
+giving abilities to symbolic thought 
