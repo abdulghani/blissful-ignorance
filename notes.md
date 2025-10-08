@@ -374,3 +374,5 @@ local compute vs cosmic compute
 
 local compute can never match cosmic compute 
 without lossy compression 
+
+we can't out-compute cosmos
