@@ -443,3 +443,5 @@ paradoxically, introversion, stubbornness, ignorance and stupidity, tribalism be
 this reads those properties as independence, and stability
 
 the idea to outlive collapse calcifies as competition, and evolution
+
+which suggests that there's ceiling of density, become symbolic singularity 
