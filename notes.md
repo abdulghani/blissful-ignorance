@@ -316,3 +316,6 @@ that the viable path forward, is brute force simulation in automated system mode
 
 which paradoxically, I could at least guide human kind path forward. even though necessarily I couldn't preserve my own lineage due to present metabolic constraint
 but that I guided human kind if this document finds its use and humanity wants to align with coherence around cosmic recursion 
+
+because imagining that infinitely thin and infinitely endless straight path was stark
+and maybe humanity can make it a stream or a wide road
