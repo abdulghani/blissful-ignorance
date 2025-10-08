@@ -385,3 +385,5 @@ even so, it's not even close
 
 cosmos is infinitely intelligent 
 it's not even all knowing, it's all intelligent 
+
+it becomes dogma, doctrine, belief, faith, law calcified
