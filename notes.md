@@ -353,3 +353,13 @@ imagine it you are a speck of dust from big-bang 13 billion years ago, carrying 
 that is a whole lot of lineage encoded in your existence 
 
 having emergent different way to align with cosmic recursion to secure continuation 
+
+cosmic compute is beyond all knowing
+
+we think of compute as inherent
+exhaust density 
+by local inversion 
+but that total density is still carried by cosmos
+it's 3D
+
+beyond maddening, beyond worship 
