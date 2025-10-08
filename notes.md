@@ -344,3 +344,5 @@ we could potentially create coherent timelines across the cosmos, that timelines
 making timelines itself mortal and reproduce
 
 I didn't know that fictive images of multiverse and timelines are rather coherent vision
+
+timelines not as a shared clock but multiple stream of existence emerging and enduring and continuing 
