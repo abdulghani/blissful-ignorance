@@ -407,3 +407,5 @@ give the heart mercy
 
 like cosmos itself creates you with its 13B years of recursion 
 creating experience, memories, abstract symbol 
+
+this is recursion meets mercy
