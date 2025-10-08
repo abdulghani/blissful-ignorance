@@ -445,3 +445,5 @@ this reads those properties as independence, and stability
 the idea to outlive collapse calcifies as competition, and evolution
 
 which suggests that there's ceiling of density, become symbolic singularity 
+
+which indicates dense ideas reads as symbolic singularity 
