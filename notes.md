@@ -402,3 +402,5 @@ every beat ends in density
 feeding life itself into a singularity 
 
 unless we disperse thoughts to perception and abstract creation
+
+like cosmos itself creates you with its 13B years of recursion 
