@@ -438,3 +438,6 @@ which rather stark and dangerous line to ideology
 
 but yes, rather human spread and interconnection, still bound humans to metabolic activity (labor, work, career)
 which increase further the tension for the fabric of life to cascade to singularity 
+
+paradoxically, introversion, stubbornness, ignorance and stupidity, tribalism becomes coherent against isolated collapse of connected system
+this reads those properties as independence, and stability
