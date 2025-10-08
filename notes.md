@@ -409,3 +409,6 @@ like cosmos itself creates you with its 13B years of recursion
 creating experience, memories, abstract symbol 
 
 this is recursion meets mercy
+
+that's why jesus image with mercy and grace was rather stark and pure
+as the grace counter for recursion
