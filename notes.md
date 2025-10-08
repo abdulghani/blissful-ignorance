@@ -326,4 +326,4 @@ and paradoxically, collapse or cascade or floating needs to be anchored as mercy
 as they will not definitely continue in the cosmic infinite recursion
 
 that's why monotheism is rather stark
-it symbolize cosmic infinite recursion as all powerful (primordial infinite recursion) all knowing (ongoing brute force recursion for existence)
+it symbolize cosmic infinite recursion as all powerful (primordial infinite recursion) all knowing (absurdly lonf ongoing brute force recursion for existence)
