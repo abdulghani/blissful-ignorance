@@ -437,3 +437,4 @@ possibly create collapse itself
 which rather stark and dangerous line to ideology
 
 but yes, rather human spread and interconnection, still bound humans to metabolic activity (labor, work, career)
+which increase further the tension for the fabric of life to cascade to singularity 
