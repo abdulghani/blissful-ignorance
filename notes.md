@@ -388,4 +388,4 @@ it's not even all knowing, it's all intelligent
 
 the compression becomes dogma, doctrine, belief, faith, religion, law calcified
 
-humans, are 13 billion worth of compute as a living artifact of its compression
+humans, are 13 billion years worth of compute as a biological artifact of its compression
