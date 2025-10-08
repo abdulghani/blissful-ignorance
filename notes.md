@@ -394,3 +394,6 @@ thoughts ends itself in singularity
 starting the recursion from the beginning 
 as the cosmic density saturates in scale
 even density of symbolic thought 
+
+the heartbeat become the last local recursion keeping us alive
+it's not thought 
