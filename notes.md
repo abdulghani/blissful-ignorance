@@ -371,3 +371,6 @@ it's the compute of space and density into certainty
 
 I've reached beyond my understanding, knowledge, compute
 local compute vs cosmic compute 
+
+local compute can never match cosmic compute 
+without lossy compression 
