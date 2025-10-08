@@ -342,3 +342,5 @@ and that's how we can potentially build super intelligence
 (speculation)
 we could potentially create coherent timelines across the cosmos, that timelines can float infinitely across the cosmos against its own recursion
 making timelines itself mortal and reproduce
+
+I didn't know that fictive images of multiverse and timelines are rather coherent vision
