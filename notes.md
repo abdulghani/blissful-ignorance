@@ -412,3 +412,5 @@ this is recursion meets mercy
 
 that's why jesus image with mercy and grace was rather stark and pure
 as the grace counter for recursion
+
+love is the last abstract construct that floats against recursion
