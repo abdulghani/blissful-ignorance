@@ -384,3 +384,4 @@ density will catch up to it
 even so, it's not even close
 
 cosmos is infinitely intelligent 
+it's not even all knowing, it's all intelligent 
