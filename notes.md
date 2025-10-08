@@ -349,5 +349,5 @@ timelines not as a shared clock but multiple stream of existence emerging and en
 
 rather that the anchor is still cosmic inherent recursion as the first problem principle 
 
-imagine it you are a speck of dust from 13 billion years ago, caryying lineage all the way to you in the present through its cosmic infinite recursion 
+imagine it you are a speck of dust from big-bang 13 billion years ago, caryying lineage all the way to you in the present through its cosmic infinite recursion 
 that is a whole lot of lineage encoded in your existence 
