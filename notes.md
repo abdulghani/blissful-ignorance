@@ -333,3 +333,7 @@ although that embeds dogma and prescribe values that's not necessarily relevant 
 
 (opinions)
 that's how images like multiverse or multiple timelines can exist as existence of multiple coherent stream as carriers of civilization across the cosmos
+
+rather that religions use the lucid experience and realization to calcify structures, power
+this document can be used as a neutral document to emulate and guide cognition the lucid experience to model coherence
+potentially applicable to automated system as we can reinforce learning the model towards coherence and scale the compute as humanity could afford it
