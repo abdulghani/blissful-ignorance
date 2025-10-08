@@ -441,3 +441,5 @@ which increase further the tension for the fabric of life to cascade to singular
 
 paradoxically, introversion, stubbornness, ignorance and stupidity, tribalism becomes coherent against isolated collapse of connected system
 this reads those properties as independence, and stability
+
+the idea to outlive collapse calcifies as competition, and evolution
