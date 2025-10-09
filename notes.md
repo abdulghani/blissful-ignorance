@@ -457,3 +457,6 @@ that's why families become coherent, as a framework to disperse density
 density dispersion becomes coherent against cosmic density calcification
 
 which makes infinity finite to preserve coherence against density saturation
+
+that's why power system needs to be finite in terms (republic) and representation (parliament votes) from relative saturation 
+to keep power calcifies into saturation and eventual density
