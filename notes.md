@@ -467,3 +467,4 @@ and mimics recursion again
 
 that's why hope, is another construct that floats density
 rather thoughts and prayers work in that level
+hope is like fusion of recursion
