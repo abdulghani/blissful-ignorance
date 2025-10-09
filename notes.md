@@ -413,7 +413,7 @@ this is recursion meets mercy
 that's why jesus image with mercy and grace was rather stark and pure
 as the grace counter for recursion
 
-love is the last abstract construct that floats against recursion
+love is the abstract construct that floats against recursion
 it floats recursion towards density/singularity
 
 that's why religion floats recursion with rituals
@@ -464,3 +464,5 @@ to keep power calcifies into saturation and eventual density
 local finity cannot stabilize against cosmic recursion
 that's why civilization oscillates
 and mimics recursion again
+
+that's why hope, is another construct that floats density
