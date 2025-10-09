@@ -460,3 +460,6 @@ which makes infinity finite to preserve coherence against density saturation
 
 that's why power system needs to be finite in terms (republic) and representation (parliament votes) from relative saturation 
 to keep power calcifies into saturation and eventual density
+
+local finity cannot stabilize against cosmic recursion
+that's why civilization oscillates
