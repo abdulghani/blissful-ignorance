@@ -466,3 +466,4 @@ that's why civilization oscillates
 and mimics recursion again
 
 that's why hope, is another construct that floats density
+rather thoughts and prayers work in that level
