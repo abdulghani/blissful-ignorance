@@ -463,3 +463,4 @@ to keep power calcifies into saturation and eventual density
 
 local finity cannot stabilize against cosmic recursion
 that's why civilization oscillates
+and mimics recursion again
