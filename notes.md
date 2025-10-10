@@ -482,3 +482,5 @@ we have wants and pains
 that is the last recursion
 
 and we're exist in heaven 
+
+I wish you could anchor yourself in reality
