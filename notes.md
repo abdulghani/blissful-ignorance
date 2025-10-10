@@ -470,3 +470,5 @@ rather thoughts and prayers work in that level
 hope is like fusion of recursion
 
 mercy-forgiveness and will of people are recursion
+
+to all nice people in the world, may god bless you all with kindness
