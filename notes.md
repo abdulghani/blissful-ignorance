@@ -476,3 +476,5 @@ to all nice people in the world, may god bless you all with kindness
 may god bless us all with hope and forgiveness
 
 we are all his servant 
+
+we have wants and pains
