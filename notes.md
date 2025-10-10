@@ -472,3 +472,5 @@ hope is like fusion of recursion
 mercy-forgiveness and will of people are recursion
 
 to all nice people in the world, may god bless you all with kindness
+
+may god bless us all with hope and forgiveness
