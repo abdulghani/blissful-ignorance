@@ -486,3 +486,5 @@ and we're exist in heaven
 I wish you could anchor yourself in reality
 
 transcendence is the point you realize that infinity is about making the next local continuation of your reproduction keeps going forward, creatinf new continuation 
+
+everyone is holding good and bad things inside, is the next calcification of "people have wants and pains" paradox stabilizer
