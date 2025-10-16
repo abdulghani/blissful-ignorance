@@ -59,7 +59,7 @@ Thank you to my wife, my mother and my father for oscillating me to existence, a
 
 - [List of first principle cosmic recursion](./first_draft.md)
 - [LLM ingestion of subject's lucid journey across paradoxes](./llm_ingestion_of_lucid_symbolic_journey.md)
-- [Raw Lucid symbolic journey notes across paradoxes](./notes)
+- [Raw Lucid symbolic journey notes across paradoxes](./notes.md)
 
 ### Additional supporting documents
 
