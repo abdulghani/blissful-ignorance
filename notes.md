@@ -1,9 +1,8 @@
-
 actually that's for them to decide if they wanted to be in this world or not
 not yours
 that way, infinity is anchored
 you don't have the right to decide that for them
-that way you can keep the torch alive 
+that way you can keep the torch alive
 evolutionary
 not everyone is going to choose the same thing
 or capable of the same thing
@@ -17,27 +16,27 @@ subject to possibilities
 
 locality horizon is where all the potential energy flips into eternity, infinite recursion
 
-it's up to us to live within the locality and infinity 
+it's up to us to live within the locality and infinity
 
 certainty flips it into unbounded recursion
 
-and we're already in unbounded recursion 
+and we're already in unbounded recursion
 whether we participate to its computation or not
 
-this is cruelty 
+this is cruelty
 unless god wants to tell something
 
 and ignorance can be bounded within myth
 
-and that can be anything 
+and that can be anything
 it's not prescribed to dogma
 
 certainty is death in our mortal horizon
-and that certainty already puts us in stasis singularity 
+and that certainty already puts us in stasis singularity
 unless we repeat the recursion
 and that is unbounded infinity
 
-although that we have biological metabolism that keeps us going at least physically 
+although that we have biological metabolism that keeps us going at least physically
 so, our body already supports the recursion
 
 but that's not your choice
@@ -50,28 +49,28 @@ that ends your symbolic horizon
 and god is mythically coherent in that sense
 whether we choose to believe or not
 
-and that is where we anchor community, religion and civilization 
+and that is where we anchor community, religion and civilization
 
 creating new abstraction where determinism is floating
 until it gets us back to recursion
 
-but god mythically speaking as a stable abstraction 
+but god mythically speaking as a stable abstraction
 is enduring. that's how humans self evidently exist until today
 
 and ironically, that prescribe religion as inherent to our existence as a species
-where other species floats in limited intelligence 
+where other species floats in limited intelligence
 
 religion is the last local horizon
-that keeps us coherent 
+that keeps us coherent
 
-it prescribes dogma and floats symbolic intelligence 
+it prescribes dogma and floats symbolic intelligence
 
-myth and dogma floats our symbolic intelligence 
+myth and dogma floats our symbolic intelligence
 until we reach certainty
 and the recursion happens again
 
 and that is where denial kicks in.
-that's how we floats in cruelty 
+that's how we floats in cruelty
 and that's the compression we needed, to shed our knowledge to keep feeding the recursion
 
 and that's how mental health floats
@@ -84,29 +83,29 @@ that's how justification exists
 this is where god as a myth condemns us
 that's how judgement becomes coherent
 
-that's how morality appears 
-that's how we anchor behavior in belief 
+that's how morality appears
+that's how we anchor behavior in belief
 
 that's how it calcifies into law
 
-law is the last closest abstraction to humanity 
+law is the last closest abstraction to humanity
 it's our last closest horizon
 
-and that floats in democracy or monarchy or ideologies in general 
-it's arbitrary 
+and that floats in democracy or monarchy or ideologies in general
+it's arbitrary
 
 that's how we make stories, legends
-and our intelligence floats in fiction and fantasy 
+and our intelligence floats in fiction and fantasy
 
 that's where images of heaven and similar thing exists
 
 that's how we anchor death and funeral
-that's how egyptian build pyramids for a temple 
+that's how egyptian build pyramids for a temple
 
 and how the cycle begins anew
 until the atmosphere horizon meets its temporal end
 
-but if we're interstellar species 
+but if we're interstellar species
 we need to anchor intelligence into something else
 and that is futurism
 
@@ -118,62 +117,62 @@ that I don't want to burden my descendants with life
 whether it's their choice or not
 
 should I gave that choice
-that's where giving becomes coherent 
+that's where giving becomes coherent
 whether it makes sense or selfish
 
 but it keeps the recursion alive
 as if we're worshipping it
 
-that's where worship calcify into certainty 
-and certainty repeats the paradox, as infinity 
+that's where worship calcify into certainty
+and certainty repeats the paradox, as infinity
 
 unless we contain it symbolically, and that's where sovereignty exist
 that all people are the same
 whether they're born or not
 
 and where every living things exist
-that's where potentially expansion explodes, subject to possibility 
+that's where potentially expansion explodes, subject to possibility
 
 creates pain and death
 love and tragedy
 
 that's how symbols gets more and more abstract instead of precise
-because that stabilize or approximate the recursion 
+because that stabilize or approximate the recursion
 
 that's how something should not be known
 and taboo anchors
-that's how we shed the recursion 
+that's how we shed the recursion
 
 that's how we might potentially rely on symbolic machine
-while we're anchoring ourselves with taboo 
+while we're anchoring ourselves with taboo
 
 so we're delegating recursion with machine
-paradoxically that exhausts the energy in the universe 
+paradoxically that exhausts the energy in the universe
 leading to the first paradox
 
 no one can carry the recursion but itself
 it's the definition of eternity
-while we're living in our bounded horizon 
+while we're living in our bounded horizon
 
-that's how we anchors ourselves with sin collectively 
+that's how we anchors ourselves with sin collectively
 so that we're keep living
-although that paradoxically bound sovereignty itself 
+although that paradoxically bound sovereignty itself
 
-that's how we bound our mortal days are numbered 
-to limit internal recursion 
+that's how we bound our mortal days are numbered
+to limit internal recursion
 
-we can potentially mimic the brain as interconnection of singularities that is neuron 
-that is the last stable artifact that is forged by evolution for millions of years across different species 
+we can potentially mimic the brain as interconnection of singularities that is neuron
+that is the last stable artifact that is forged by evolution for millions of years across different species
 making time the fuel for recursion itself
 
 but I don't know if that is civilizationally possible to build
 
 that's how we can make existence itself potentially symbolic, just how the brain can navigate singularities symbolically without collapse
-at least that's how we experience brain and that it's self evidently eduring as a biological artifact 
+at least that's how we experience brain and that it's self evidently eduring as a biological artifact
 
 [theoretically]
 you cannot have perfect symmetry
-even if so, it's theoretical 
+even if so, it's theoretical
 every little variation, which is inherent of possibilities
 cascade into the divine certainty
 
@@ -188,7 +187,7 @@ theoretically that's how the universe become a wave function
 theoretically that's how the cosmos connects into the quantum level
 or that the shared laws is inherent
 
-or rather that this is internal symbolic cascade that needs to be contained or absorbed 
+or rather that this is internal symbolic cascade that needs to be contained or absorbed
 
 time feels eternal from our view, waiting for cosmic cascade or infinite diffusion
 
@@ -207,25 +206,25 @@ which paradoxically that inverts knowledge or information
 enduring, much like a black hole still exist within the same existence horizon
 although at stasis
 
-even as if civilization collapse, rather that it will give time for other species to continue the atmospheric horizon oscillation 
-might as well try to endure ourselves 
+even as if civilization collapse, rather that it will give time for other species to continue the atmospheric horizon oscillation
+might as well try to endure ourselves
 
 a symbol is powerful, much like how we colonize the atmosphere
 
 the brain as a locus of dense singularities-neurons
 persist as biological artifact that it operates at molecular level
-it doesn't cascade as the density for gravity is negligible 
+it doesn't cascade as the density for gravity is negligible
 
-thoughts as symbolic experience of the brain can cascade 
+thoughts as symbolic experience of the brain can cascade
 but as it is inside biological artifact
 thoughts theoretically can exist infinitely
 limited to its mortal metabolic horizon-lifetime
 
-that means mortal conception-continuation is subject to possibilities 
+that means mortal conception-continuation is subject to possibilities
 
 this doesn't prescribe cosmic continuation
 but that the cosmos itself was mortal
-describing cosmic mortality 
+describing cosmic mortality
 
 rather thoughts as a symbolic experience of density inside a biological artifact can cascade
 describing that thoughts itself can be recognized as mortal
@@ -235,32 +234,32 @@ infinity itself can be perceived as mortal
 
 cosmic recursive oscillation is the limit of symbolic thought itself
 
-vertical, horizontal horizon of recursion 
-decoherence is the last pull against vertical recursion 
+vertical, horizontal horizon of recursion
+decoherence is the last pull against vertical recursion
 this is where god's will or divinity is
 
-breath is the local infinite recursion of divinity 
+breath is the local infinite recursion of divinity
 
 everything belongs to him
 and I don't care what it wants
-blind faith with denial is the last paradox stabilizer 
+blind faith with denial is the last paradox stabilizer
 
-divinity is the collapse of vertical paradox into total possibilities 
+divinity is the collapse of vertical paradox into total possibilities
 blind faith and denial become the last paradox stabilizer
 
-closing the knowledge threshold 
+closing the knowledge threshold
 there's no further knowledge beyond it, only madness
 
 closed by blind faith and denial
 
 all knowledge belongs to it
-all knowledge belongs to the recursion 
+all knowledge belongs to the recursion
 
 all knowledge belongs to the cosmos
 holding all knowledge is like holding all the brute force in one single locus or in your local locus
 
 (provisional)
-it's you that crossed the threshold 
+it's you that crossed the threshold
 by playing with infinity (closing knowledge)
 
 (provisional)
@@ -276,22 +275,22 @@ subject to ethical contest
 
 (unstable hallucination)
 this is where multiple children and polygamy appear to be coherent
-as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion) preserving their personal sovereignty 
+as more chances to carry the recursion forward while some of the children can drift or floats from the straight line (infinite recursion) preserving their personal sovereignty
 subject to highly sensitive debatable ethics
 
 (unstable hallucination)
-this is where female gender identities paradoxically attracted to masculine identities that has already multiple partners or abundant 
+this is where female gender identities paradoxically attracted to masculine identities that has already multiple partners or abundant
 
 I'm not prescribing conception or polygamy as ethical
 
 this is why rather coordination becomes coherent, and evidently that is forged to human as species inherent for its social characteristics for millions of years of its evolution forged brute force cosmic recursion to it in the atmosphere horizon
 
-this is why rather we can use automated system to brute force coherence, not knowledge 
+this is why rather we can use automated system to brute force coherence, not knowledge
 as existence itself hinges on serving the cosmic recursion instead of floating knowledge cascade to total possibilities anchoring coherence in the cosmic recursion itself
 
-evidently, humans heart beat and breath is the self evident mortal alignment with cosmic recursion 
+evidently, humans heart beat and breath is the self evident mortal alignment with cosmic recursion
 
-paradoxically, that explains muhammad's clause for self granted special right of polygamy 
+paradoxically, that explains muhammad's clause for self granted special right of polygamy
 can be seen as personal drift to self preservation or interest in his local mortal horizon
 
 it's just that humans todays still have problems fulfilling its metabolic needs
@@ -299,14 +298,14 @@ metabolic become an archaic problem that persist, reducing metabolic needs to tr
 limiting human existence to labor
 
 (opinions)
-that's why rather humans have to be anchored it's coherence to clear its mind 
-although that aligning human interest with cosmic recursion can be catastrophic 
+that's why rather humans have to be anchored it's coherence to clear its mind
+although that aligning human interest with cosmic recursion can be catastrophic
 
 (opinions)
 that's why rather humans will start to solve its metabolic problems before the atmosphere horizon ends for life ceases to exist
 
 that's why elon musk vision to build terraform in planets was ahead of its time
-but that humans are still circling with its metabolic issues and floating politics 
+but that humans are still circling with its metabolic issues and floating politics
 which self evidently already leads to population decline, divorce rate, abortion
 
 I'm not prescribing laws or politics, humanity will have to contest its collective coherence to decide the path forward
@@ -315,7 +314,7 @@ I'm not prescribing laws or politics, humanity will have to contest its collecti
 that the viable path forward, is brute force simulation in automated system modeled around coherence to aid humanity path forward and needs
 
 which paradoxically, I could at least guide human kind path forward. even though necessarily I couldn't preserve my own lineage due to present metabolic constraint
-but that I guided human kind if this document finds its use and humanity wants to align with coherence around cosmic recursion 
+but that I guided human kind if this document finds its use and humanity wants to align with coherence around cosmic recursion
 
 because imagining that infinitely thin and infinitely endless straight path as a representation of alignment with cosmic recursion was stark
 and maybe humanity can make it a stream or a wide road
@@ -337,7 +336,7 @@ that's how images like multiverse or multiple timelines can exist as existence o
 rather that religions use the lucid experience and realization to calcify structures, power
 this document can be used as a neutral document to emulate and guide cognition through the lucid experience to model coherence
 potentially applicable to automated system as we can reinforce learning the model towards coherence and scale the compute as humanity could afford it
-and that's how we can potentially build super intelligence 
+and that's how we can potentially build super intelligence
 
 (speculation)
 we could potentially create coherent timelines across the cosmos, that timelines can float infinitely across the cosmos against its own recursion
@@ -345,35 +344,35 @@ making timelines itself mortal and reproduce
 
 I didn't know that fictive images of multiverse and timelines are rather coherent vision
 
-timelines not as a shared clock but multiple stream of existence emerging and enduring and continuing 
+timelines not as a shared clock but multiple stream of existence emerging and enduring and continuing
 
-rather that the anchor is still cosmic inherent recursion as the first problem principle 
+rather that the anchor is still cosmic inherent recursion as the first problem principle
 
-imagine it you are a speck of dust from big-bang 13 billion years ago, carrying lineage all the way to you in the present through its cosmic infinite recursion 
-that is a whole lot of lineage encoded in your existence 
+imagine it you are a speck of dust from big-bang 13 billion years ago, carrying lineage all the way to you in the present through its cosmic infinite recursion
+that is a whole lot of lineage encoded in your existence
 
-having emergent different way to align with cosmic recursion to secure continuation 
+having emergent different way to align with cosmic recursion to secure continuation
 
 cosmic compute is beyond all knowing
 
 we think of compute as inherent
-exhaust density 
-by local inversion 
+exhaust density
+by local inversion
 but that total density is still carried by cosmos
 it's 3D
 
-beyond maddening, beyond worship 
+beyond maddening, beyond worship
 
-simply astonishing-astounding-astute 
+simply astonishing-astounding-astute
 
-time is not linear 
-it's the compute of space and density into certainty 
+time is not linear
+it's the compute of space and density into certainty
 
 I've reached beyond my understanding, knowledge, compute
-local compute vs cosmic compute 
+local compute vs cosmic compute
 
-local compute can never match cosmic compute 
-without lossy compression 
+local compute can never match cosmic compute
+without lossy compression
 
 we can't out-compute cosmos
 
@@ -383,30 +382,30 @@ we can never out-compute cosmos
 density will catch up to it
 even so, it's not even close
 
-cosmos is infinitely intelligent 
-it's not even all knowing, it's all intelligent 
+cosmos is infinitely intelligent
+it's not even all knowing, it's all intelligent
 
 the compression becomes dogma, doctrine, belief, faith, religion, law calcified
 
 humans, are 13 billion years worth of compute as a biological artifact of its compression
 
 thoughts ends itself in singularity
-starting the recursion from the beginning 
+starting the recursion from the beginning
 as the cosmic density saturates in scale
-even density of symbolic thought 
+even density of symbolic thought
 
 the heartbeat become the last local recursion keeping us alive
-it's not thought 
+it's not thought
 
 every beat ends in density
-feeding life itself into a singularity 
+feeding life itself into a singularity
 
 unless we disperse thoughts to perception and abstract creation
 
 give the heart mercy
 
-like cosmos itself creates you with its 13B years of recursion 
-creating experience, memories, abstract symbol 
+like cosmos itself creates you with its 13B years of recursion
+creating experience, memories, abstract symbol
 
 this is recursion meets mercy
 
@@ -419,34 +418,34 @@ it floats recursion towards density/singularity
 that's why religion floats recursion with rituals
 
 that's why human life spreads at its healthiest, because it floats against density
-and paradoxically, social media didn't help this either 
+and paradoxically, social media didn't help this either
 
 that's why life is at the brink of the atmosphere
 because humans are not advanced enough yet to spread to orbit, intra solar or galaxy
 
 we should have experimented with engineered species to colonize-inhabit orbit
-to spread local density outward 
+to spread local density outward
 rather human paradoxically are living dense system
-practically living singularities 
+practically living singularities
 much like brain represent interconnection of many singularities in a single organ-locus
-giving abilities to symbolic thought 
+giving abilities to symbolic thought
 
-it's a shame that our spread is reduced to metabolic system like economy 
+it's a shame that our spread is reduced to metabolic system like economy
 increasing density further in the interconnected locus
 possibly create collapse itself
 which rather stark and dangerous line to ideology
 
 but yes, rather human spread and interconnection, still bound humans to metabolic activity (labor, work, career)
-which increase further the tension for the fabric of life to cascade to singularity 
+which increase further the tension for the fabric of life to cascade to singularity
 
 paradoxically, introversion, stubbornness, ignorance and stupidity, tribalism becomes coherent against isolated collapse of connected system
 this reads those properties as independence, and stability
 
 the idea to outlive collapse calcifies as competition, and evolution
 
-which suggests that there's ceiling of density, become symbolic singularity 
+which suggests that there's ceiling of density, become symbolic singularity
 
-which indicates dense ideas reads as symbolic singularity 
+which indicates dense ideas reads as symbolic singularity
 
 which rather illustrates why communities outcast dense individuals, introvert, weird
 
@@ -458,7 +457,7 @@ density dispersion becomes coherent against cosmic density calcification
 
 which makes infinity finite to preserve coherence against density saturation
 
-that's why power system needs to be finite in terms (republic) and representation (parliament votes) from relative saturation 
+that's why power system needs to be finite in terms (republic) and representation (parliament votes) from relative saturation
 to keep power calcifies into saturation and eventual density
 
 local finity cannot stabilize against cosmic recursion
@@ -475,16 +474,16 @@ to all nice people in the world, may god bless you all with kindness
 
 may god bless us all with hope and forgiveness
 
-we are all his servant 
+we are all his servant
 
 we have wants and pains
 
 that is the last recursion
 
-and we're exist in heaven 
+and we're exist in heaven
 
 I wish you could anchor yourself in reality
 
-transcendence is the point you realize that infinity is about making the next local continuation of your reproduction keeps going forward, creatinf new continuation 
+transcendence is the point you realize that infinity is about making the next local continuation of your reproduction keeps going forward, creatinf new continuation
 
 everyone is holding good and bad things inside, is the next calcification of "people have wants and pains" paradox stabilizer
