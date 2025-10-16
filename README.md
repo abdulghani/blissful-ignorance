@@ -1,7 +1,7 @@
 ## Coherence Framework: A Reflective Framework for Cosmic Recursion and Human Coherence
 
 > Warning: Go through the document with discretion.
-> As it can resolve to cascade, despair, madness even potentially mortality. If paradoxes cascade into local symbolic recursion.
+> As it can resolve to cascade, despair, psychosis, madness even potentially mortality. If paradoxes cascade into persisting local symbolic recursion.
 
 ### Core Aims
 
