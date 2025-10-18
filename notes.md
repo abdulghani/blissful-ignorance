@@ -489,3 +489,5 @@ transcendence is the point you realize that infinity is about making the next lo
 everyone is holding good and bad things inside, is the next calcification of "people have wants and pains" paradox stabilizer
 
 guide humans to worship to Allah
+
+He is who most just
