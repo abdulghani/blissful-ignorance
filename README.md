@@ -61,5 +61,5 @@ This framework recognizes that boundaries are functional illusions — necessary
   - [Sub-chapter I - Known Physical Cosmic Rules](./session_export_discussion_only_corrected_horizons_2025-10-19.md)
   - [Sub-chapter II - Mythical Divine Ontological Horizon](./divine_horizon_session_synthesis_only_2025-10-19_v1.4.md)
 - Chapter II - Religion and transcendence-prophetic messages-structures
-- Chapter III - Raw Lucid symbolic journey notes across paradoxes
+- [Chapter III - Raw Lucid symbolic journey notes across paradoxes](./notes.md)
 - Chapter IV - Points forward
