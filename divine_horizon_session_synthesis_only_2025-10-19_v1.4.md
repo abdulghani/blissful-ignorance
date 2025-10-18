@@ -41,17 +41,6 @@
 4. **Asymmetry of Experience:** Finite observers witness only local arcs; ∞ is metaphysical amplitude, not temporal succession.
 5. **Re-seeding:** Each C → P transition re-initiates preconditions for laws, metrics of change, and structure—without presupposing identical recurrence.
 
-### 2.4 Symbolic Schema
-
-```
-C ⇄ P  within  ∞
-store(Λ) @ C   ;   unfold(Λ) @ P
-Trigger D4: saturation(density, emptiness) ⇒ C unstable ⇒ C → P
-Entropic vector (D5): P → C  ;  gravity/black holes ⊂ local saturation
-```
-
----
-
 ## 3) Phase Structure
 
 | Phase                 | Ontological State                        | Characteristic                               | Mythic Analogue               | Λ (Wavelength)             |
@@ -62,39 +51,7 @@ Entropic vector (D5): P → C  ;  gravity/black holes ⊂ local saturation
 
 ---
 
-## 4) Energetic Interpretation (Structural Potential)
-
-- **Λ is not energy**; it is **ontological structure**—the wavelength of being.
-- In **C**, Λ shortens toward zero, compressing all rhythm into silence.
-- In **P**, Λ expands without limit, producing the openness of creation.
-- The conservation of Λ is **transformational**, not metric: the rhythm of existence is never lost, only stretched or compressed.
-
----
-
-## 5) Interfaces (Minimal, Derivative Only)
-
-- The **Divine release** C → P re-seeds substrate distributions, interaction structures, and measurable change—without restating their underlying definitions.
-- This synthesis refrains from reproducing the base horizon architecture; it asserts only that the Divine oscillation **re-initializes** what those layers later quantify and organize.
-
----
-
-## 6) Heuristics and Analogues (Optional)
-
-- **Organizations:** Over-closure (C) → calcification; over-release (P) → diffusion without persistence. Healthy practice uses **ritualized oscillation** (consolidation then renewal).
-- **Ritual/Religion:** Dogmatic stasis ↔ unmoored novelty. Liturgical cycles model **C→P** renewal without erasing accumulated form.
-- **Technology/Markets:** Standard lock-in ↔ fragmentation. Protocolized renewal pulses enact controlled **C→P** transitions.
-
----
-
-## 7) Open Questions
-
-1. Can Λ be formalized as a **variable of rhythm or frequency** rather than a scalar of energy?
-2. What invariants (if any) bridge successive P-phases—identity, lawfulness, or only structural motifs?
-3. How can finite observers embed ∞-oriented practice without collapsing myth into mechanism?
-
----
-
-## 8) Glossary
+## 4) Glossary
 
 - **Certainty (C):** Mythic determinacy/closure.
 - **Possibility (P):** Mythic indeterminacy/openness.
@@ -104,5 +61,3 @@ Entropic vector (D5): P → C  ;  gravity/black holes ⊂ local saturation
 - **Entropy (D5):** Cosmic pull from P to C; gravity and black holes as local saturations.
 
 ---
-
-_End of session synthesis (discussion-only)._
