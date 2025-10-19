@@ -58,8 +58,8 @@ This framework recognizes that boundaries are functional illusions — necessary
 ## List of contents
 
 - Chapter I - Rule of the cosmos (wave function, oscillation, cosmic recursion, entropy, solar system, orbit, atmosphere)
-  - [Sub-chapter I - Known Physical Cosmic Rules](./session_export_discussion_only_corrected_horizons_2025-10-19.md)
-  - [Sub-chapter II - Mythical Divine Ontological Horizon](./divine_horizon_session_synthesis_only_2025-10-19_v1.4.md)
-- [Chapter II - Religion as cryptic, dogmatic continuity-coherence protocol](./religion_rituals_session_synthesis_2025-10-19.md)
+  - [Sub-chapter I - Known Physical Cosmic Rules](./chapter-1a-session_export_discussion_only_corrected_horizons_2025-10-19.md)
+  - [Sub-chapter II - Mythical Divine Ontological Horizon](./chapter-1b-divine_horizon_session_synthesis_only_2025-10-19_v1.4.md)
+- [Chapter II - Religion as cryptic, dogmatic continuity-coherence protocol](./chapter-2-religion_rituals_session_synthesis_2025-10-19.md)
 - [Chapter III - Raw Lucid symbolic journey notes across paradoxes](./notes.md)
 - (Provisional) Chapter IV - Points forward
