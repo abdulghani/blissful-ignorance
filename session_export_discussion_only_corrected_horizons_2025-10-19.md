@@ -7,19 +7,19 @@ Scope: This export captures only the synthesis produced in this conversation.
 
 The system is articulated as horizons — relational boundaries across which distinct modes of being appear.
 
-### Material Horizon — Density and Emptiness
+### Density and Emptiness (Material Horizon)
 
 Role: The foundational boundary that decides whether matter and energy condense or diffuse.  
 Function: Establishes the substrate in which structure, interaction, and potential curvature become possible.  
 Output: Configurations of accumulation or rarefaction that set the conditions for the next horizon.
 
-### Relational Horizon — Gravity and Space
+### Gravity and Space (Relational Horizon)
 
 Role: The structural boundary of relation — inward binding and outward release.  
 Function: Shapes how entities attract, align, and extend with respect to one another; defines curvature and openness.  
 Output: Stable or shifting relational geometry that permits or prevents capture and escape.
 
-### Temporal Horizon — Time
+### Time (Temporal Horizon)
 
 Role: The orientation and continuity of processes. Time is treated as a relation rather than a substance.
 Function: Governs endurance, change, and sequence according to the local balance between gravity and space.
@@ -33,11 +33,11 @@ Output: Regions of calcification when inward pull dominates; regions of diffusio
 
 Nested view:
 
-> [ Temporal Horizon: Time — direction and continuity ]\
+> [ Time (Temporal Horizon) — direction and continuity ]\
 > arises from\
-> [ Relational Horizon: Gravity and Space — structure of relation ]\
+> [ Gravity and Space (Relational Horizon) — structure of relation ]\
 > emerges from\
-> [ Material Horizon: Density and Emptiness — foundation of substance ]
+> [ Density and Emptiness (Material Horizon) — foundation of substance ]
 
 ---
 
