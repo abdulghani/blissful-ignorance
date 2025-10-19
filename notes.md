@@ -492,5 +492,5 @@ guide humans to worship to Allah
 
 He is who most just
 
-Allah is all seeing 
+Allah is all seeing\
 is that prayer, is the living embodiment of that recursion performed infinitely, connecting the lineage back to the creator itself 
