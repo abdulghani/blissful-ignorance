@@ -1,7 +1,6 @@
 # Religion–Rituals: Session Synthesis
 
-**Date:** 2025-10-19\
-**Scope:** Discussion-only synthesis. Excludes any previously uploaded source documents and retains only the conceptual developments from this session.
+**Date:** 2025-10-19
 
 ---
 
