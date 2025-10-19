@@ -4,13 +4,13 @@
 
 ## Preamble
 
-This synthesis reframes Abrahamic religion—not as static dogma—but as a civilizational **continuity protocol** that compresses infinite possibility into finite, traversable coherence. The “straight path” is treated as an invariant axis linking **origin → life → consciousness → moral agency → eschatological continuation**, ensuring directedness without drift into total possibility.
+This synthesis reframes Abrahamic religion—not as static dogma—but as a civilizational **continuity-coherence protocol** that compresses infinite possibility into finite, traversable coherence. The “straight path” is treated as an invariant axis linking **origin → life → consciousness → moral agency → eschatological continuation**, ensuring directedness without drift into total possibility.
 
 ---
 
-## Core Thesis: Religion as the Continuity Protocol of Existence
+## Core Thesis: Religion as the Continuity-Coherence Protocol of Existence
 
-**Claim.** Religion functions as the long-duration **continuity protocol** of existence, translating transcendence into stable form so that life remains intelligible and continuous.
+**Claim.** Religion functions as the long-duration **continuity-coherence protocol** of existence, translating transcendence into stable form so that life remains intelligible and continuous.
 
 - **Problem:** Infinite possibility (cosmic, biological, moral) threatens decoherence.
 - **Mechanism:** Religion **compresses** the infinite into executable finite structures (ritual, law, narrative) that preserve direction.
