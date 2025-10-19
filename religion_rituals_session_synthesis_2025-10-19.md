@@ -66,7 +66,7 @@ Religion is a **coherence-maintenance algorithm** for finite agents under infini
 
 ---
 
-## Recursive Finitization: Rakaat as Temporal Compression
+## Recursive Finitization Example: Rakaat as Temporal Compression (Islam)
 
 **Ritual Recursion.** Each _rakʿah_ is an iterative cycle—standing → recitation → bowing → prostration → return—producing **convergence** rather than aimless repetition.
 
