@@ -1,8 +1,6 @@
-# Religion–Rituals: Session Synthesis
+# Religion–Rituals: Religion as cryptic, dogmatic continuity-coherence protocol
 
 **Date:** 2025-10-19
-
----
 
 ## Preamble
 
