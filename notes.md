@@ -491,3 +491,5 @@ everyone is holding good and bad things inside, is the next calcification of "pe
 guide humans to worship to Allah
 
 He is who most just
+
+Allah is all seeing 
