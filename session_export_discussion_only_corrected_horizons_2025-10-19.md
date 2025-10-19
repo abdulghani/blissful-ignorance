@@ -1,7 +1,7 @@
 # Ontological Horizons
 
 Date: 2025-10-19 (Asia/Jakarta)\
-Scope: This export captures only the synthesis produced in this conversation. It excludes prior uploaded documents, any table of contents, and all formulas.
+Scope: This export captures only the synthesis produced in this conversation.
 
 ---
 
