@@ -507,3 +507,5 @@ QS Al-baqarah 68\
 describe paradox between two poles, neither too old or too young, but it is between two conditions
 
 Al-Baqarah, describe through metaphors of stories cow
+
+if there's a secret, it should be with the jews, as they're necessarily the oldest community/civilization that stands coherent today
