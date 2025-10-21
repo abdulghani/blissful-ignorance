@@ -515,3 +515,5 @@ remember that you are one, from cosmos big-bang, infinity reduced to one, to fin
 and from finite, counted as symbolic association to-against infinity
 
 infinity is necessarily pre-counting, pre-calculation, pre-compute
+
+and necessarily, counting are abstract and arbitrary 
