@@ -509,3 +509,9 @@ describe paradox between two poles, neither too old or too young, but it is betw
 Al-Baqarah, describe through metaphors of stories cow
 
 if there's a secret, it should be with the jews, as they're necessarily the oldest community/civilization that stands coherent today
+
+remember that you are one, from cosmos big-bang, infinity reduced to one, to finite
+
+and from finite, counted as symbolic association to-against infinity
+
+infinity is necessarily pre-counting 
