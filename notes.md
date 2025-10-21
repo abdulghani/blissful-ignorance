@@ -500,3 +500,5 @@ relative reality, ontological reality based on its horizons
 reality to us as a local inversion of entropy\
 disequilibrium\
 we're floating on earth as disequilibrium
+
+you can anchor yourself on eart as a stable cosmic artifact, that's relatively stable enough for you as a local reality
