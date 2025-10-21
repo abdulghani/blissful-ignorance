@@ -519,3 +519,5 @@ infinity is necessarily pre-counting, pre-calculation, pre-compute
 and necessarily, counting are abstract and arbitrary 
 
 feeding existence for people to exist was mercy 
+
+I'm not going to keep touching infinity
