@@ -517,3 +517,5 @@ and from finite, counted as symbolic association to-against infinity
 infinity is necessarily pre-counting, pre-calculation, pre-compute
 
 and necessarily, counting are abstract and arbitrary 
+
+feeding existence for people to exist was mercy 
