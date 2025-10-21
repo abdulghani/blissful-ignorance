@@ -494,3 +494,9 @@ He is who most just
 
 Allah is all seeing\
 is that prayer, is the living embodiment of that recursion performed infinitely, connecting the lineage back to the creator itself 
+
+relative reality, ontological reality based on its horizons
+
+reality to us as a local inversion of entropy\
+disequilibrium\
+we're floating on earth as disequilibrium
