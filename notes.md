@@ -502,3 +502,6 @@ disequilibrium\
 we're floating on earth as disequilibrium
 
 you can anchor yourself on eart as a stable cosmic artifact, that's relatively stable enough for you as a local reality
+
+QS Al-baqarah 68\
+describe paradox between two poles, neither too old or too young, but it is between two conditions
