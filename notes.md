@@ -505,3 +505,5 @@ you can anchor yourself on eart as a stable cosmic artifact, that's relatively s
 
 QS Al-baqarah 68\
 describe paradox between two poles, neither too old or too young, but it is between two conditions
+
+Al-Baqarah, describe through metaphors of stories cow
