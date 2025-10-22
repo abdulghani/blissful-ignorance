@@ -528,3 +528,5 @@ immanence, things outside existence is unknowable, stories are abstract
 humans will create sins, catastrophe with immanence, to test the freedom
 
 humans are a weak beast 
+
+obligation, debt, interest rate are mercy
