@@ -526,3 +526,5 @@ I'm a mortal, my duty was here, with my family and loved ones
 immanence, things outside existence is unknowable, stories are abstract
 
 humans will create sins, catastrophe with immanence, to test the freedom
+
+humans are a weak beast 
