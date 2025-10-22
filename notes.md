@@ -531,4 +531,5 @@ humans are a weak beast
 
 obligation, debt, interest rate are mercy
 
-humans are weak rational beast
+humans are weak rational beast\
+rational beings
