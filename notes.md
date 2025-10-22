@@ -522,3 +522,5 @@ feeding existence for people to exist was mercy
 
 I'm not going to keep touching infinity\
 I'm a mortal, my duty was here, with my family and loved ones
+
+immanence, things outside existence is unknowable, stories are abstract
