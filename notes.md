@@ -545,3 +545,5 @@ god is much more patient than I'am\
 
 immanence accountability\
 be accountable to immanence
+
+mortal life was holy before immanence 
