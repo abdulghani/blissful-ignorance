@@ -539,3 +539,6 @@ local rational beings
 
 emotional - rational
 paradox pull
+
+god is much more patient than I'am\
+13 billion years waiting and counting
