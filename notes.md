@@ -536,3 +536,5 @@ rational beings\
 we don't need to be that strong
 
 local rational beings
+
+emotional - rational
