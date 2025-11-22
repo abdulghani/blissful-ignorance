@@ -547,3 +547,7 @@ immanence accountability\
 be accountable to immanence
 
 mortal life was holy before immanence 
+
+god have to exist to contain hallucination or abstraction to become stable
+
+which suprising for me enough that human can have a state as an abstraction for that long
