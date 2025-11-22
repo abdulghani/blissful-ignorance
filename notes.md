@@ -551,3 +551,5 @@ mortal life was holy before immanence
 god have to exist to contain hallucination or abstraction to become stable
 
 which suprising for me enough that human can have a state as an abstraction for that long
+
+that's why humans are not god, our hallucination are not stable to become abstraction
